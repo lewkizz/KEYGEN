@@ -1,2 +1,2 @@
 # KEYGEN
-a really cool key generator. it's secure. it's unpractically secure. it's nigh-unbreakable.
+a really cool key generator. it's secure. it's unpractically secure. it's nigh-unbreakable. it was originally super edgy.
